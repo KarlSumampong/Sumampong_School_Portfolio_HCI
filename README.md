@@ -1,1 +1,1 @@
-# Sumampong_School_Portfolio_HCI
+# The image of the shovel beside a growing seedling represents the hands-on effort and care required to cultivate life. It illustrates the act of planting and nurturing, which is central to the gardening experience.​
